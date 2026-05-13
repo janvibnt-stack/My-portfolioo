@@ -31,4 +31,3 @@ To improve my skills and start freelancing in video editing and web development.
 ## Author
 
 Janvi
-(Will be added soon)
